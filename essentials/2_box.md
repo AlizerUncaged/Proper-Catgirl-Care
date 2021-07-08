@@ -1,0 +1,10 @@
+## 2. Litter Box Logic
+<p align="center">
+  <img src="https://media.tenor.com/images/844eee5fa0000a8b84ac12322c251d9f/tenor.gif">
+</p1>
+
+Many cat-girls are initially raised to use litter pans for elimination. By the time they are sexually mature a good breeder will typically have them toilet trained and you will only have to show her the basic functions of flushing and the location of sanitary cleaning materials.
+
+However, if your cat-girl is a stray/feral from a shelter it is possible she was never fully toilet trained. This matter is fairly easily rectified in a few ways. When your cat-girl evinces signs of elimination squatting-straining calmly and carefully pick her up under the arms and place her on the toilet. Gently hold her there until she eliminates. Demonstrate proper sanitary wiping upon completion. Your cat-girl is a sanitary and fastidious creature. She will very quickly grasp the mechanics of clean and safe elimination on the toilet and be much happier for it, as will you. B. Unfortunately, some cat girls have never been toilet trained or even spent much time indoors. This is especially true of strays and ferals. Additional time and patience is required to achieve the desired result. If your cat-girl will not permit you to pick her up to move to the toilet, when she evinces elimination it will be necessary to gradually shape her behavior. Be aware this may take a few days to a week or more. When she evinces elimination quickly and calmly place a Cat-Girlz! Brand floor nappy underneath her. She will quickly equate the nappy with the spot for elimination. Again, cat-girls are neat and clean creatures about elimination. Now move the floor nappy closer to the bathroom each time, till finally the nappy is in front of the toilet. Then finally place the nappy over the toilet bowl. She will quickly grasp the implications. Be sure to use soothing and calm words during this procedure and praise her effusively when she eliminates on the proper instrument. Cat-girls, even strays and ferals are quick to respond to positive reinforcement.
+
+> Next section: [Feeding Techniques](3_feeding.md)
